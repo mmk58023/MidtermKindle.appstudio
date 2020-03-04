@@ -1,0 +1,2 @@
+# MidtermKindle.appstudio
+ 
